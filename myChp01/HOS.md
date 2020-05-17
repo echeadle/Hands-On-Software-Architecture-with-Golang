@@ -1,0 +1,3 @@
+# HOUSE OF SHAME
+
+## Contracts
